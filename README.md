@@ -1,0 +1,2 @@
+# MAGO
+MENU FIVEM
